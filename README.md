@@ -1,4 +1,4 @@
-# WOMEN'S SAFETY DEVICE
+# WOMEN SAFETY DEVICE
    India which sees itself as a promising super power and an economic hub, is still trapped in the
 clutches of various patriarchal evils like molestations, dowry, crime against women, worst among all is rape. In
 today’s world, women safety has become a major issue as they can’t step out of their house at any given time
